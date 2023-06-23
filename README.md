@@ -8,3 +8,6 @@ MTExNzM1NTI1MjgyODYwMjQ0MQ.GKLn3W.mOPLNLexM6GGkVmhFMwm9MHSBOrXdIaJA6qv8s
 
 Hi! The next yami's bot is yh multifunction It seems to be a bot! I will expose! (w)
 MTExMDU3MTQwNDA3MzY0MDA1OA.GItIA-.3Qe_Bg_scYzjbXeXq_HteeGEssr5WbDMGG2dAc
+
+This time, yami's bot only for yh? It seems to be a bot! (w)
+MTExNTYzMDU2NjQ5OTQyNjM3NA.G1_-Xt.0GVU83YnEWcGcqxqLzLtIrVL6o4xmtjJCj_R5Q
